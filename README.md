@@ -20,7 +20,7 @@ The program supports the following operations:
 
 ---
 
-### BY glory
+### ~  GLORY THERISSA CHITTIGALA
 
 ---
 
